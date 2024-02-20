@@ -1,4 +1,2 @@
-Welcome my my graveyard of projects 😅 I like writing code, reading about code and moaning about writing and reading code.
-
-Drop me a line over on my Twitter @frompy_
+Welcome my my graveyard of rushed ideas. Enjoy your stay.
 
